@@ -1,0 +1,2 @@
+# amankarie
+aku amank arie
